@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @amanda5485
 - 👀 I’m interested in ... game developement!
-- 🌱 I’m currently learning ... 3d modeling
+- 🌱 I’m currently learning ... 3d modeling and digital art
 - 💞️ I’m looking to collaborate on ... puzzle games
 - 📫 How to reach me ... roblox!
 - 😄 Pronouns: ... she/her
